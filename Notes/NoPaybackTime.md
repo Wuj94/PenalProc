@@ -26,6 +26,7 @@
 [More info - Wiki](https://en.wikipedia.org/wiki/Fourth_Reich).
 
 ## Greece and Kossovo
+These territory are Bari's territories, obtained during the WWII. Nowadays, Rome is unlawfully using peaceful maps to gain control over these populations.
 
 ## Never see people explaining other people by engineering practices/concepts/whatever
 
@@ -35,4 +36,10 @@
 
 1. Potenza region
 2. Wind turbine in Santeramo in Colle produce energy to be used in Northern Italy. Is it regulated? *H*o*w*?! 
+
+## Communications
+
+1. 5G antennas are really dangerous - Due to their working frequencies, those waves are capable of exerting pressure strong enough to move toxic micro organisms into the air. In Santeramo in Colle (BA), the 5G antenna was stolen by the Albanian mafia (Rome). This point is really high in the province of Bari and the antenna can be used to infect the population in Bari, at need.
+2. The dipole system - It is to given back to Gioia del Colle airport. It is needed by the population and it has no use in the Northern part of the country. To find out why, read about the dipole.
+3. The telephone network - It is suspected that Northern Italians have gained access to networking and telephone infrastructure that are not meant to be used by them, after war agreements.
 
