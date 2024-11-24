@@ -43,3 +43,8 @@ These territory are Bari's territories, obtained during the WWII. Nowadays, Rome
 2. The dipole system - It is to given back to Gioia del Colle airport. It is needed by the population and it has no use in the Northern part of the country. To find out why, read about the dipole.
 3. The telephone network - It is suspected that Northern Italians have gained access to networking and telephone infrastructure that are not meant to be used by them, after war agreements.
 
+# Military
+
+1. NATO is Bari's.
+2. EOS - Earth Observations Systems were managed by Bari with the help of NASA (US). Why are now they all decomissioned and people are paying taxes for less performant systems built by ESA in Rome? 
+
