@@ -10,6 +10,6 @@
 ## GIP in Bari 
 R.G. G.I.P. 2045/22 
 	Date 18/12/2021
-	Letizia Serini <letiziaserini@hotmail.it> duty solicitor 
+	Letizia Serini <letiziaserini@hotmail.it> solicitor 
 	Forum of Bari
 	Bari, South
