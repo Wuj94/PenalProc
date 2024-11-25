@@ -15,7 +15,6 @@
 
 ### At Work
 
-### At the Gym
 
 ## Science-based Statement
 1. Dipole - different interpretations - the dipole from Rome cannot exist. Even less from Milan. It comes from immigration flows, cultural differences at the two ends, ... 
@@ -93,4 +92,7 @@
 
 # More
 1. During a chat with Roberto from Santeramo who is a school teacher, I proposed as a solution to the current problem given by big hierarchy of people, known as social systems making the Italian army united across the entire country and at the same time making each region independent, following the US configuration. Somebody said, they made it for the first part, not for the second. It makes things worse because people with a wrong culture now have no reason to improve. They feel safe when they talk shit.  
+2. Once, it’s a coincidence, Twice is happenstance. Nine times, it’s definitely a Bryde’s whale. - Ann Allen, about biotwangs
+3. A vngiut saienz. Sit capsciut? Meh
+4. Claudio Mastronardo, born the 21st of July (at least what he says) who lives in Station Rd (Via Stazione), Santeramo in Colle, Bari, 70029 is my tailored persecutor and conspirator. He started persecuting me when I was less than 10 years old. He promised many times to stop, and he has never done it.
 

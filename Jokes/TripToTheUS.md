@@ -11,6 +11,6 @@
 
 * Independence day - The 4th of July
 * Thanksgiving - Turkey
-* C Deloris Tucker 
+* C Deloris Tucker and compare to Giorgia Meloni
 
 Ready to compete [Competitivi] (cit.)
