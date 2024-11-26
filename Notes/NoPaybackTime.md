@@ -48,3 +48,12 @@ These territory are Bari's territories, obtained during the WWII. Nowadays, Rome
 1. NATO is Bari's.
 2. EOS - Earth Observations Systems were managed by Bari with the help of NASA (US). Why are now they all decomissioned and people are paying taxes for less performant systems built by ESA in Rome? 
 
+# Stolen Turns of People
+
+1. Army People - Rome, Bari (Gioia del Colle), London UK. Rome is not meant to be there.
+2. The South - Rome, Bari, Los Angeles California US. Rome is not meant to be there.
+3. The Greeks - Rome, Bari, Athens, Miami Florida. Rome is not meant to be there.
+4. Altamurano people - Rome, Altamura, New York City NY. Rome is not meant to be there.
+
+NOTE: By Rome, you mean Northern Italy.  
+
