@@ -6,9 +6,9 @@ It feels like, there hasn't been enough respect given for who won the last armed
 It sounds like somebody is trying to invert a dependency that it is understood from a genetic test or inferred from the result of the last wars. 
 Supremacy is not only about the pilot who drives the best in the airborne, less evolved people must not drive humanity.
 
-Updates
+## Updates
 
-1) During the penal process, Rome with the help of foreign people on the hills (Gioia del Colle area, Santeramo in Colle 
+1. During the penal process, Rome with the help of foreign people on the hills (Gioia del Colle area, Santeramo in Colle 
 in particular) have stolen knowledge from the accused person. They carried on with this behavior 
 throughout the years. Even during the penal process. Spy/Tracking Devices have been put in use 
 One of these is the in-ear devices working by EM waves. This allows communication through brain 
@@ -45,11 +45,11 @@ knowledge I acquired at Aldo Moro - University of Bari during my BSc in Computer
 for help during the take home assessments development. Then they suddenly broke up with me.
 It took years for me to learn by experience and It takes financial effort. For rent only, I spent more than 40000£.
 
-2) It seems they are accusing of mental illness. This is not possible because of my healthy life style 
+2. It seems they are accusing of mental illness. This is not possible because of my healthy life style 
 which includes regular study, practicing and training sessions. Even more, I am not part of 
 those who still think mental illnesses even exit. Rome conspires you, Berlin sends you tablets. To the kiss.
 
-3) I am suspicious of the planned destruction and reconstruction of the Italian state... It was  
+3. I am suspicious of the planned destruction and reconstruction of the Italian state... It was  
 probably arranged by Northern Italians. 
 The plan is to move resources to Northern Italy first, then sell the South of Italy to East 
 Europe. And make me guilty for most of the crimes that are part of this process. 
@@ -59,11 +59,11 @@ next few decades.
 They have been carry out deceiving agreements with Bari's allies. Namely, UK and US military 
 forces.
 
-4) A suspect of an MiG fighter jet landing in Gioia del Colle, Bari, South during this penal 
+4. A suspect of an MiG fighter jet landing in Gioia del Colle, Bari, South during this penal 
 process (September / October 2024) was witnessed by the accused person. 
 This time, cameras on my sunglasses could be helpful. It was really close to me and It was not pleasant for an American from Bari who I am.
 
-5) Using cameras on glasses, they have experienced the development of a software 
+5. Using cameras on glasses, they have experienced the development of a software 
 architecture based on mathematical principles and inspired by QED.
 It is called Five Magics, to pun after Einstein’s dissertation, dated 1906. 
 This was developed using the currently in use MacBook Pro 2021 SN:FKPX7L9D36.
@@ -71,14 +71,24 @@ This was built with the extent of improving the military capabilities of the Ame
 This is my Atlassian website I used https://calabrese-giuseppe.atlassian.net/ 
 To build something similar to https://www.saab.com/products/Mission-Support-System
 
-6) Using cameras on glass lenses (also sunglasses), they have committed privacy violations 
+6. Using cameras on glass lenses (also sunglasses), they have committed privacy violations 
 against myself and my family members. This includes a total of other 4 people, plus me. 
 
-7) Scientific knowledge and learning path were stolen using the same methodology.
+7. Scientific knowledge and learning path were stolen using the same methodology.
 
-8) Currently, my criminal record is clean. Given my current location, Bari, there is no reason 
+8. Currently, my criminal record is clean. Given my current location, Bari, there is no reason 
 to share about me. Hardly, they could have rights to access in the UK only. 
 I have an Italian passport from Bari. Its number is YB3363200. There is a preliminary
 investigation judge (RG GIP 2045/22, RGNR 710/22, Proc. Pen. 12149/20 RGNR Mod 21, N. 895/24 RGNR Mod 21) and these two procedures have the same reasons behind. 
 Rome and the Albanian mafia were behind all of it.
+
+[What is below, was sent the day after]
+
+[Picture attached](Resources/LaRomaDelSud.jpeg)
+
+[And this is what happened, as a consequence it seems](LaRomaDelSudPT2.jpeg)
+
+They gave me an antipsychotic and I don’t need it. 
+
+Please help
 
