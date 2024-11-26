@@ -4,7 +4,8 @@
 1. Fourth Reich or the Holy Roman-German Empire - (London)+, Berlin, Rome, Altamura/Santeramo (driven by Rome), Tirana, Bucharest, Moscow (they probably had to withdraw at some point during the process)
 	1.1 Rome, Madrid, Lisbon, South Aliens  
 2. The Western Roman Empire - Rome, Madrid, Lisbon, South Aliens
-3. The Stolen turn of the army ppl - Rome, Bari (Gioia del Colle, Santeramo in Colle), L.A.
+3. The Stolen Turn of the Army People - Rome, Bari (Gioia del Colle, Santeramo in Colle), L.A California. Rome is not meant to be there.
+4. The Stolen Turn of the Greeks - Rome, Bari, Athens, Miami Florida. Rome is not meant to be there.
 
 ## Caughts
 
