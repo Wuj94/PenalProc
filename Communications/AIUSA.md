@@ -1,6 +1,7 @@
+# Introduction
+
 Dear Sir or Madam,
 
-# Introduction
 My name is Giuseppe Calabrese, from Gioia del Colle, Bari. Temporarily located at my parents' house in 
 Santeramo in Colle, Bari.
 I was born in Santeramo in Colle on the 2nd of October 1994, from a family from Bari and Potenza, in 

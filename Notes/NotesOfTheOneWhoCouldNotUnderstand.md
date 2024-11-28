@@ -3,7 +3,7 @@
 ## Turns
 1. Fourth Reich or the Holy Roman-German Empire - (London)+, Berlin, Rome, Altamura/Santeramo (driven by Rome), Tirana, Bucharest, Moscow (they probably had to withdraw at some point during the process)
 	1.1 Rome, Madrid, Lisbon, South Aliens  
-2. The Western Roman Empire - Rome, Madrid, Lisbon, South Aliens
+2. The Western Roman Empire - Rome, Madrid, Lisbon, South Aliens flowing into the US through Mexico 
 
 ## Caughts
 
@@ -25,7 +25,7 @@
 	https://www.youtube.com/watch?v=Q3dvbM6Pias ... The Arian cycle - every 25 years they invade. 1944 - 1974 - 1999 - 2024. What's wrong with the Nazis?
 3. In Europe, the North depends on the South. The North contributes to the South from the scientific and military perspective. The South provides work force. 
 4. Relative prime numbers to make desicions using consensus avoiding ties. 
-5. The reason why, the west side of the world have been struggling dealing with Russian populations comes after a different effect of traumas over people from this cold region. Extremely cold weather conditions make Russian people feel traumas much less. For what humans are used to do during their lives, in the best case they give other humans the same treatment they give to themselves. Russian people don't feel traumas in most of the cases. As a consequence, they might be seen as rude since they treat people from the West side of the world as if they couldn't feel traumas as well. The reason behind this comes from chemical reaction in our brain that do not happen or are weaker in cold weather conditions.
+5. The reason why, the west side of the world have been struggling dealing with Russian populations comes after a different effect of traumas over people from this cold region. Extremely cold weather conditions make Russian people feel traumas much less. For what humans are used to do during their lives, in the best case they give other humans the same treatment they give to themselves. Russian people don't feel traumas in most of the cases. As a consequence, they might be seen as rude since they treat people from the West side of the world as if they couldn't feel traumas as well. The reason behind this comes from chemical reaction in our brain that do not happen or are weaker under cold weather conditions.
 6. From that branch of graph theory that is related to sociology and the 6 degrees of separation, you should never trust close people who are advertising themselves not to share knowledge. For instance, If there is someone from Rome (or any other city) that says, "they are separated, we have no agreement with them", referring to another group of people acting in a different way, well . . . just stay away. Please remember, by the law, knowledge is shared thoroughlyinside a region of a (military) map. For example, in Northern Italy in the community of Northern Italians. (Milan is Rome)
 7. In 2018, at CS dept in Bari, I found out, you can run the JVM on Linux. 
 
@@ -47,6 +47,7 @@
 	4.1 Rights
 	4.2 Knowledge
 	4.3 . . .   
+5. Rome is part of Northern Italy - As part of `Rome big thief`, people from Rome change their side of the country to exploit resources that do not belong to them, using the so called peaceful maps. These maps are not relevant outside the Italian peninsula.
 
 ### Biology related
 1. Phenotype won't move.
@@ -73,7 +74,7 @@
 	2.2 Italian language 
 3. The deceiving London-Rome agreement
 	3.1 ...
-4. The Italian language (which mostly derives from Bari since its Greek root) has been shared with the Russian populationusing television.
+4. The Italian language (which mostly derives from Bari since its Greek root) has been shared with the Russian population, by means of television programme.
 5. The Trani's (Bari) fantry won the WWII along with US and UK. In Gioia del Colle, they were all from Bari when they helped the RAF/USAF going through. They were *not* f- Austrians or Albanians who are trying to take control. They were on the opposite side.
 
 ### Economy 
