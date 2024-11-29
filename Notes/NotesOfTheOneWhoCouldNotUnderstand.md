@@ -85,7 +85,8 @@
 2. The all but one - for an excluded person or someone to traumatise who proposed a change, the entire group of people must agrees on something but one. 
 	The rule is, the change happens only if all of the people from the group agree.
 3. Change or add one letter of the name of the mafia family after a movement (it basically works for any Ru-mafia) 
-4. Change the peaceful maps and say, it's Bari's fault 
+4. Change the peaceful maps and say, it's Bari's fault
+5. Use Gioia del Colle, Bari's right to allow Rome building weapon systems with no constraints to workaround the impositions given by the international law after the loss of WWII. Still remember, the Americans from Bari won Kossovo war 24 years ago. As a consequence, these rights come from something happened less than 30 years ago. Not, `many many years ago`, as they make people believe.
 
 # Rights
 1. International right transfer from Bari to Northern Italy. Never approved. Those rights in Gioia del Colle area are my fucking rights. 
