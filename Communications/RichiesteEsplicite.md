@@ -6,3 +6,5 @@
 4) Roma e' sospettata di provocare queste condizioni mediche forzando pazienti e dottori a sottoporsi e prescrivere questi trattamenti mediante la mafia albanese e i dispositivi nell'orecchio (in-ear).
 A Santeramo in Colle, queste persone sono trattate al Centro di Salute Mentale in Via Giovanni Paisello, all'intersezione con Via Giacomo Puccini.
 5) Disattivare nell'immediato e permanentemente i dispositivi auricolari (in-ear) alla mia famigli che non sono di Bari. Faccio riferimento ai sequenti, Martino Calabrese, Caterina Nigro, Giovanna Calabrese, Francesco Calabrese, Giuseppe Calabrese.
+6) On the 1th of December 2024, at 0940PM UTC+1, the Northern Italian government is tasked by an explicit request to justify their non-surrending behaviour by one of the possibile law system. Mentioned law systems are, Catholic Principles (the 10 commandments are violated), Science (law of Nature), the Italian law system from the perspective of the accused person (American from Bari), in 24 hours time. Time is ticking . . . 
+
