@@ -1,3 +1,5 @@
+# Report Updates
+
 Good evening,
 
 Sorry for the time taken, It’s still me. Giuseppe Calabrese, born in Santeramo in Colle (BA) on the 02/10/1994, provenance South. I am American from the South. Passport attached.
@@ -6,7 +8,7 @@ It feels like, there hasn't been enough respect given for who won the last armed
 It sounds like somebody is trying to invert a dependency that it is understood from a genetic test or inferred from the result of the last wars. 
 Supremacy is not only about the pilot who drives the best in the airborne, less evolved people must not drive humanity.
 
-## Updates
+## Part 1
 
 1. During the penal process, Rome with the help of foreign people on the hills (Gioia del Colle area, Santeramo in Colle 
 in particular) have stolen knowledge from the accused person. They carried on with this behavior 
@@ -91,4 +93,44 @@ Rome and the Albanian mafia were behind all of it.
 They gave me an antipsychotic and I don’t need it. 
 
 Please help
+
+## Part 2
+
+On the 26th of November 2024, at about 10AM Giuseppe Calabrese of Gioia del Colle, Bari (thereon `the accused person`) arrives at DSM, centre for mental health in Santeramo in Colle, Bari. Present were two collaborators (referring to themselves as nurses) of the psychiatrist.
+The collaborator who was asked to provide evidence or references for the reason why the accused person is meant to undergo a mental health check stated, the reason mentioned on paper - family notice - is not the real reason.
+Reasons behind the notification of mental check are related to people in Santeramo in Colle, Bari and to the military airport in Gioia del Colle, Bari. 
+In particular, people from the bar of the library "Biblioteca Giovanni Colonna" located at Giuseppe DiVagno Sq. (Piazza Giovanni DiVagno), Santeramo in Colle, Bari after someone spitting on the table.
+Collaborators asked the accused person to retry on the day after. 
+It is suspected, the final aim was to make Martino Calabrese (father), or any other family member, sign a notification to Carabinieri or to the mental health centre itself. The extent is suspected to be avoiding people from Santeramo be investigated after beign part of mafia associations. 
+The majority of people belonging to Santeramo in Colle community are part of the so called Albanian mafia.
+
+On the 27th of November 2024, at about 11AM the accused person reaches the DSM again to obtain further explainations from the psychiatrist.
+After scheduling an appointment for the 4th of December 2024 at 0930 and having a quick conversation with a different nurse, the psychiatrist does not 
+seem to be happy to consider his future patient's concerns. This is, the accused person. The psychiatrist's from Gioia del Colle, Bari opinion is to inject a lower dose of the same antipsycothic. It was noticed by the accused person, the given dose amount was too high giving side-effects causing tiredness for the next 3 days after the injection.
+It was also mentioned during the conversation, my penal solicitor mentioned given drug had not to be injected at all and a medical statement of good physical and mental health was presented to the medic, dated 26th of November 2024.
+[Statement](../Medical/Certificates/GoodMentalPhysicalHealthCertificate2.pdf)
+A particular worth mentioning is, the nurse were asked to schedule an appointment to conversate with more time and ease about the matter with the psychiatrist. The psychiatrist is confident instead about injecting a second dose of the same drug.
+
+## Part 3
+
+On the 4th of December - after scheduling an appointment to better understand the concerns - the accused person (Giuseppe Calabrese) meets at 0930 AM the psychiatrist (Anelli Francesco from Gioia del Colle).
+After briefly explaining to him and the surrounding nurses the accused person was there to understand more about the cause for this treatment instead of being there for a second injection.
+The accused person was invited in the personal room of the psychiatrist. Also, one of the nurses joined.
+During this conversation, it was explained by the accused person, there are nuisances from the medical perspective and the perspective of the legal proceeding, that is international.
+
+From the medical perspective, it was noticed the personal medic of the accused person had already established, there was no reason to undergo a medical treatment, that was instead prescribed by the psychiatrist. 
+The drug prescribed is, Haldol Decanoas, 75ml per month. He is willing to inject a new medication on the 18th of December, 2024.
+
+From the legal perspective, the Order attached in the Resource folder with ref. no. "41 of 20.11.2024" mentions people in the same household pointing out uncommon behaviours and indication of persecution mania of the accused person.
+Point is, after investigation, the only person in the household that was asked about the accused person is under treatment himself since years ago. Not the right person to ask for indications, for sure. 
+This is Martino Calabrese, father of the accused person. 
+He stated, a few general questions were asked about the accused person by the psychiatrist.
+
+People from the library in Santeramo in Colle, Bari have also stated they had no problem with the accused person.
+
+At the office of the Council (comune di Santeramo in Colle), the Local Police was met to gather more information.
+The opinion of the officer is, the accused person should undergo the treatment and it would not be a problem, since it would be easy in the future to reduce the dosage after a chat with the psychiatrist. 
+The treatment in his opinion is just 'for helping the accused person go through this health problem'.
+
+Note, all of what is written, unless otherwise stated, about this medical proceeding (that is verification and/or treatment) happens in Santeramo in Colle, Bari.
 
