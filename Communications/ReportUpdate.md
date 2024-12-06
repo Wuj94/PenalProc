@@ -88,7 +88,7 @@ Rome and the Albanian mafia were behind all of it.
 
 [Picture attached](Resources/LaRomaDelSud.jpeg)
 
-[And this is what happened, as a consequence it seems](LaRomaDelSudPT2.jpeg)
+[And this is what happened, as a consequence it seems](../Medical/CouncilOrderN41.jpeg)
 
 They gave me an antipsychotic and I don’t need it. 
 
