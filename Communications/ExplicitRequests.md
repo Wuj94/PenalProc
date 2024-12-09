@@ -1,4 +1,4 @@
-# RICHIESTE ESPLICITE
+# ./Medical/CouncilOrderN41RICHIESTE ESPLICITE
 
 1) A prescindere da quello che la legge del Nord Italia specifichi, per favore espellimi dal Nord Italia. Non ho alcuna intenzione di trasferirmi nella parte Nord della nazione. Questa e' una popolazione inferiore geneticamente e culturalmente che vuole capire, spiegare e decidere per degli esseri umani piu' complessi o superiori, ovvero gli italiani del Sud Italia. Non c'e' davvero alcuna intenzione di spostarmi sul loro territorio, sia come civile che come militare. Il protocollo con questi esseri umani sara' dovessi incontrarli all'estero, attenersi alle leggi del territorio e alle leggi internazionali. L'utilizzo del loro dispositivo e' troppo insistente ed incongruente con le attuali leggi internazionali.
 2) Sottolineo l'invecchiamento precoce di mio padre, Martino Calabrese durante questo processo.
@@ -7,4 +7,5 @@
 A Santeramo in Colle, queste persone sono trattate al Centro di Salute Mentale in Via Giovanni Paisello, all'intersezione con Via Giacomo Puccini.
 5) Disattivare nell'immediato e permanentemente i dispositivi auricolari (in-ear) alla mia famigli che non sono di Bari. Faccio riferimento ai sequenti, Martino Calabrese, Caterina Nigro, Giovanna Calabrese, Francesco Calabrese, Giuseppe Calabrese.
 6) On the 1th of December 2024, at 0940PM UTC+1, the Northern Italian government is tasked by an explicit request to justify their non-surrending behaviour by one of the possibile law system. Mentioned law systems are, Catholic Principles (the 10 commandments are violated), Science (law of Nature), the Italian law system from the perspective of the accused person (American from Bari), in 24 hours time. Time is ticking . . . As part of the explicit request, the government (currently held by yutes from Northern Italy, Albania and Romania, It seems) they are asked not to take part in the remote communication that happens by mean of the in-ear device until they find a justification. This last point of the explicit request has been already violated.
-7) To immediately interrupt the medical procedure that prescribes antipsychotics (Santeramo in Colle's Council Order n. 41 of 20.11.2024) you can find at ../Medical/CouncilOrderN41.jpeg.
+7) To immediately interrupt the medical procedure that prescribes antipsychotics (Santeramo in Colle's Council Order n. 41 of 20.11.2024) you can find at ../Medical/CouncilOrder/CouncilOrderN41.jpeg.
+

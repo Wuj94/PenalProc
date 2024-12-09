@@ -88,7 +88,7 @@ Rome and the Albanian mafia were behind all of it.
 
 [Picture attached](Resources/LaRomaDelSud.jpeg)
 
-[And this is what happened, as a consequence it seems](../Medical/CouncilOrderN41.jpeg)
+[And this is what happened, as a consequence it seems](../Medical/CouncilOrder/CouncilOrderN41.jpeg)
 
 They gave me an antipsychotic and I don’t need it. 
 
@@ -133,4 +133,22 @@ The opinion of the officer is, the accused person should undergo the treatment a
 The treatment in his opinion is just 'for helping the accused person go through this health problem'.
 
 Note, all of what is written, unless otherwise stated, about this medical proceeding (that is verification and/or treatment) happens in Santeramo in Colle, Bari.
+
+## Part 4 
+On the morning of the 9th of December, a letter was sent to the Prefect of Bari. It was posted at the post office at Via Dante, 1 in Gioia del Colle, Bari.
+
+[Certificate of Shipment](Resources/CertificateOfShipment.jpg)
+
+It asks for the interruption of the mandatory sanitary treatment.
+
+More info can be found at `PenalProc/Medical/CouncilOrder/`. The CouncilOrder is named CouncilOrderN41.pdf.
+
+The content of the folder `Opposition` has name of files translated to give an understanding of what the point is.
+In few words, 
+* having a clean life-style made of about 8/10 hours of training per week, with intense cardio activity at the park/forest and complementary sport activity at 6+ (gym) in Gioia 
+* being part of Gaia (the information system of the Italian Red Cross of Gioia del Colle) and meeting other colleague more than once a week
+* having worked for the Red Cross for about 5/6 months this year to meet the Unpaid Work duty after a previous hearing (where I committed a minor crime) which led to release with No-Further-Action given the positive review of the Red Cross itself
+* considered two medical statement about good mental and physical statement
+
+There is no reason to force a sanitary treatment for a non-existent psychosis.
 
